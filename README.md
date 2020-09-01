@@ -1,3 +1,4 @@
+BTS Dynamite
 [Intro: Jungkook]
 'Cause I, I, I'm in the stars tonight
 So watch me bring the fire and set the night alight
@@ -80,7 +81,7 @@ Shining through the city with a little funk and soul
 So I'ma light it up like dynamite, woah-oh-oh
 
 
-
+NCT127 REGULAR 
 [Intro: Mark]
 Yeah, yeah
 
