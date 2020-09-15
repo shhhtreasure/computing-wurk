@@ -200,3 +200,37 @@ Dinero, peso, yen, yo quiero, I want it
 
 [Outro: Taeyong]
 Regular
+
+[Intro]
+Let go!
+
+[Verse 1]
+완벽한 시선 피할 수 없어 (Real deal)
+All these women come a dime a dozen (Drip spill)
+Cool me off, I'm hotter than an oven (Chill, chill)
+We just touchin', I don't do no cuffin' (Hey)
+
+[Refrain]
+Yeah, yeah, keep it on me, do no talkin', nah
+No love, endless labor, I'm a target now
+She not ready to go home
+'Cause I'm gonna put it down and she know
+
+[Pre-Chorus]
+Baby, I can put you on
+Are you down?
+Girl, you ain't gotta say much, oh
+And we can have a good time (Good time, oh)
+Drink some, fill it up
+Think I wanna feel love
+
+[Chorus]
+I'm alive in my bag, like wow
+I'm alive in the club, oh, well
+난 좀 달라, what you gonna do?
+I'm a bad kinda player
+Thousand dollar shoes
+Thousand dollar shoes
+'Cause I'm bad, 追不上的
+Thousand dollar shoes
+'Cause I'm bad, 如此特别 (Yeah)
