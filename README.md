@@ -201,6 +201,8 @@ Dinero, peso, yen, yo quiero, I want it
 [Outro: Taeyong]
 Regular
 
+WayV Bad Alive
+
 [Intro]
 Let go!
 
