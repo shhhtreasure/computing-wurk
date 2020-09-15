@@ -234,3 +234,130 @@ Thousand dollar shoes
 'Cause I'm bad, 追不上的
 Thousand dollar shoes
 'Cause I'm bad, 如此特别 (Yeah)
+[Verse 2]
+Look, I'm a bad kinda player
+뜨거운 시선 감출 수 없어 (I know you love it, yeah)
+All these women come a dime a dozen (Oh, they come a dime a dozen)
+Yeah, I don't talk, I need mine off the top, on go
+Yeah, Milly Rock on your block, make it pop, let's go
+
+[Refrain]
+Yeah, yeah, keep it on me, do no talkin', nah
+No love, endless labor, I'm a target now
+She not ready to go home
+'Cause I'm gonna put it down and she know
+
+[Pre-Chorus]
+Baby, I can put you on
+Are you down?
+Girl, you ain't gotta say much, oh
+And we can have a good time (Good time, oh)
+Drink some, fill it up
+Think I wanna feel love
+Bad kinda player
+
+[Chorus]
+I'm alive in my bag, like wow (Like wow)
+I'm alive in the club, oh, well (Oh, well)
+난 좀 달라, what you gonna do? (What you gonna do?)
+I'm a bad kinda player
+Thousand dollar shoes
+Thousand dollar shoes
+'Cause I'm bad, 追不上的
+Thousand dollar shoes (Thousand dollar shoes)
+'Cause I'm bad, 如此特别 (Yeah)
+
+[Bridge]
+Ooh, 믿을 수가 없어
+'Cause every time you come 'round me, girl
+You pull me in closer
+Girl, you make me feel in love
+First, I was blind to it, now I can see
+I believe you mean more to me
+I'll be down for love
+Tell me that you're not giving up
+
+[Verse 3]
+Down (Yeah), down
+You got that kinda love, hot like summertime, yeah
+Loving your vibe deep inside (Look)
+She know I'm a real good lover
+Ex-man, he a sad, hurt loser (Look)
+Came 'round with a bag full of hundreds
+I'm a bad kinda player, never blow my cover (Woah)
+Bad kinda player
+
+[Chorus]
+I'm alive in my bag, like wow (In my bag, like wow)
+I'm alive in the club, oh, well (Yeah, yeah)
+난 좀 달라, what you gonna do? (What you gonna do?)
+I'm a bad kinda player
+Thousand dollar shoes
+Thousand dollar shoes
+'Cause I'm bad, 追不上的
+Thousand dollar shoes (Thousand dollar shoes)
+'Cause I'm bad, 如此特别 (Yeah)
+
+  [Verse 2]
+Look, I'm a bad kinda player
+뜨거운 시선 감출 수 없어 (I know you love it, yeah)
+All these women come a dime a dozen (Oh, they come a dime a dozen)
+Yeah, I don't talk, I need mine off the top, on go
+Yeah, Milly Rock on your block, make it pop, let's go
+
+[Refrain]
+Yeah, yeah, keep it on me, do no talkin', nah
+No love, endless labor, I'm a target now
+She not ready to go home
+'Cause I'm gonna put it down and she know
+
+[Pre-Chorus]
+Baby, I can put you on
+Are you down?
+Girl, you ain't gotta say much, oh
+And we can have a good time (Good time, oh)
+Drink some, fill it up
+Think I wanna feel love
+Bad kinda player
+
+[Chorus]
+I'm alive in my bag, like wow (Like wow)
+I'm alive in the club, oh, well (Oh, well)
+난 좀 달라, what you gonna do? (What you gonna do?)
+I'm a bad kinda player
+Thousand dollar shoes
+Thousand dollar shoes
+'Cause I'm bad, 追不上的
+Thousand dollar shoes (Thousand dollar shoes)
+'Cause I'm bad, 如此特别 (Yeah)
+
+[Bridge]
+Ooh, 믿을 수가 없어
+'Cause every time you come 'round me, girl
+You pull me in closer
+Girl, you make me feel in love
+First, I was blind to it, now I can see
+I believe you mean more to me
+I'll be down for love
+Tell me that you're not giving up
+
+[Verse 3]
+Down (Yeah), down
+You got that kinda love, hot like summertime, yeah
+Loving your vibe deep inside (Look)
+She know I'm a real good lover
+Ex-man, he a sad, hurt loser (Look)
+Came 'round with a bag full of hundreds
+I'm a bad kinda player, never blow my cover (Woah)
+Bad kinda player
+
+[Chorus]
+I'm alive in my bag, like wow (In my bag, like wow)
+I'm alive in the club, oh, well (Yeah, yeah)
+난 좀 달라, what you gonna do? (What you gonna do?)
+I'm a bad kinda player
+Thousand dollar shoes
+Thousand dollar shoes
+'Cause I'm bad, 追不上的
+Thousand dollar shoes (Thousand dollar shoes)
+'Cause I'm bad, 如此特别 (Yeah)
